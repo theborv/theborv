@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @theborv
+- 👋 Hi, I’m @theborv.
 - 👀 I’m interested in too many things, too few to count.
 - 🌱 I’m currently learning stuff.
 - 💞️ I’m looking to collaborate on someones bum, with or without you.
