@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @theborv.
 - 👀 I’m interested in too many things, too few to count.
 - 🌱 I’m currently learning stuff.
-- 💞️ I’m looking to collaborate on someones bum, with or without you.
+- 💞️ I’m not currently looking to collaborate with anyone as I am just a noob and just trying things out for myself.
 - 📫 How to reach me when your hands are cuffed?
 
 <!---
